@@ -2,7 +2,7 @@
 
 https://youtu.be/00JFmMf9JtA
 
-https://hackmd.io/@bfrp19OgTt2XfKRmfav9kQ/HJfoipRkkg/edit
+https://hackmd.io/wbEldsc8TuGG40Vqn7TMTQ
 
 # Project 6 - *translateme*
 
