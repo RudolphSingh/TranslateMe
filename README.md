@@ -2,10 +2,7 @@
 
 https://youtu.be/00JFmMf9JtA
 
-https://hackmd.io/wbEldsc8TuGG40Vqn7TMTQ
-
-https://hackmd.io/@bfrp19OgTt2XfKRmfav9kQ/HJfoipRkkg
-
+https://hackmd.io/@FT_nSa8kT3CXNCUEPrdVsw/S14FeC_Gkl
 # Project 6 - *translateme*
 
 Submitted by: **Rudolph Singh **
