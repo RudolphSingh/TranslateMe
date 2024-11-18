@@ -4,6 +4,8 @@ https://youtu.be/00JFmMf9JtA
 
 https://hackmd.io/wbEldsc8TuGG40Vqn7TMTQ
 
+https://hackmd.io/@bfrp19OgTt2XfKRmfav9kQ/HJfoipRkkg
+
 # Project 6 - *translateme*
 
 Submitted by: **Rudolph Singh **
